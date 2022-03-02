@@ -22,4 +22,4 @@ Things you may want to cover:
 * Deployment instructions
 
 * ...
-And I love youuuuuuu
+And I love youuuuuuu. They dont deserve you! You're too fkn good for them! 
